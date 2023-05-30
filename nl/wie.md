@@ -1,6 +1,6 @@
 ---
-title: Wie
-description: Wie
+title: Over ons
+description: Over ons
 ---
 
 Wij zijn een Kempens gezin uit Heultje. Een fijne buurt waar wij met zen allen geboren en getogen zijn. Boordevol energie, interesses en dromen nemen wij een sprong in het diepe om onze gezamenlijke passies vorm te geven.

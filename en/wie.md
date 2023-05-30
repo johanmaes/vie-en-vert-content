@@ -3,10 +3,10 @@ title: About us
 description: About us
 ---
 
-Wij zijn een Kempens gezin uit Heultje. Een fijne buurt waar wij met zen allen geboren en getogen zijn. Boordevol energie, interesses en dromen nemen wij een sprong in het diepe om onze gezamenlijke passies vorm te geven.
+We are a family from a small town called Heultje in Belgium. It's a lovely neighborhood where we were all born and raised. Full of energy, interests, and dreams, we take a leap into the unknown to give shape to our shared passions.
 
-Het is de natuur, het avontuur en de rust die ons telkens weer dichter bij mekaar brengt. Lange wandeltochten, heerlijk eten, aperomomenten met familie en lange kampvuur avonden met vrienden.
+It's nature, adventure, and tranquility that bring us closer together time and time again. Long walks, delicious food, aperitif moments with family, and long campfire evenings with friends.
 
-De Ardennen is onze tweede thuis geworden. Het is dan ook exact dit 'La vie en vert' dat we willen delen met onze gasten. Voor minder gaan we niet! Met hart en ziel hopen we jullie de 'Ardennen-vibes' te kunnen doorgeven.
+The Ardennes has become our second home. It's precisely this "La vie en vert" that we want to share with our guests. We won't settle for anything less! With heart and soul, we hope to pass on the "Ardennes vibes" to you.
 
-Hopelijk tot snel! Stefanie, Steven en Free
+Hope to see you soon! Stefanie, Steven, and Free
