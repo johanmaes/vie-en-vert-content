@@ -1,5 +1,6 @@
 ---
 title: Omgeving
+description: Omgeving
 ---
 
 Courtil is een klein hartelijk dorpje van de gemeente Gouvy, gelegen in de provincie Luxemburg. De vakantiewoning ligt midden in het natuurpark van de twee Ourthes (parc naturel des deux Ourthes) tussen Vielsalm, Gouvy, Houffalize en la Roche-en-Ardenne. Het is één van de mooiste plekjes in de Belgische Ardennen voor wandelaars en fietsers. Een bakkerij is op wandelafstand, alsook de bekende brouwerij/brasserie Lupulus. Hotel Saint-Martin heeft ook een lekker restaurant en is gelegen op 300m wandelen.
