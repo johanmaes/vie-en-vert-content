@@ -3,7 +3,7 @@ title: Gelijkvloerse verdieping
 description: Gelijkvloerse verdieping
 ---
 
-## Gelijkvloerse verdieping
+### Gelijkvloerse verdieping
 
 - Ruime woonkamer met eettafel voor 14 personen, flatscreen met Netflix, Disney+ en Google Chromecast, gratis Wifi, gezelschapsspellen,...
 - Gezellige bar met tafelvoetbal
