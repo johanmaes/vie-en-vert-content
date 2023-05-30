@@ -1,12 +1,12 @@
 ---
-title: Eerste verdieping
-description: Eerste verdieping
+title: First floor
+description: First floor
 ---
 
-### Eerste verdieping
+### First floor
 
-- 2 Slaapkamers met 1 tweepersoonsbed.
-- 2 Slaapkamers met 2 eenpersoonsbedden.
-- Slaapkamer met 1 tweepersoonsbed en 2 eenpersoonsbedden ( eenpersoonsbedden staan hier ook gescheiden van het dubbel bed)
-- Twee badkamers met douche en dubbele wastafel.
-- Twee aparte toiletten.
+- 2 bedrooms with 1 double bed each.
+- 2 bedrooms with 2 single beds each.
+- 1 bedroom with 1 double bed and 2 single beds (the single beds are separated from the double bed).
+- 2 bathrooms with a shower and double washbasin.
+- 2 separate toilets.
