@@ -6,27 +6,24 @@ description: sport
 ### Wandelen
 
 Deze regio is bij natuurliefhebbers gekend voor de vele bewegwijzerde wandelroutes. Een aantal van deze wandelroutes kun je volgen vanaf de kerk in Bovigny. Zie ook de wandelkaarten in ons vakantiehuis.
-De website van [de toeristische diensten van Vielsalm/Gouvy](https://www.haute-ardenne.be/nl){:target="\_blank"} of [Houffalize](http://www.houffalize-tourisme.be/) bieden nog heel wat mogelijkheden om te wandelen en ook Routeyou, Komoot of Wikiloc bevatten veel opties in de buurt.
+De website van [de toeristische diensten van Vielsalm/Gouvy](https://www.haute-ardenne.be/nl) of [Houffalize](https://www.houffalize-tourisme.be/) bieden nog heel wat mogelijkheden om te wandelen en ook Routeyou, Komoot of Wikiloc bevatten veel opties in de buurt.
+
 De Ravel L163 is geasfalteerd en geschikt voor rolstoel en/of kinderwagen. (spoorweg tussen Gouvy en
 Bastogne/30 kilometer).
 De wandeltochten in Nadrin zijn ook heel geliefd bij de toeristen (rotswand Le Hérou)
-Er is ook een Blote Voetenpads, deze is groter dan in Vlaanderen en avontuurlijk gemaakt. Let op enkel
-open van mei t.e.m. september. (Vlakbij -Ferme de la planche - Rue Montleban 75, 6674 Gouvy).
-(Elektrisch) Fietsen en MTB
-Ook de fietsliefhebber kan hier volop zijn hart ophalen.
-Niet alleen Luik-Bastenaken-Luik passeert het vakantiehuis, ook Col de Wanne ligt op een 15-tal km van
-het vakantiehuis.
-Talrijke fiets, MTB of mototochten vind je ook op bovenstaande websites of op Komoot, Routeyou of
-Wikiloc.
-Bovenstaande Ravel L163 kan je ook fietsen (zie wandelen).
-Elektrische fietsen, steps of Mountainbikes zijn ook te huur. Zie website toerisme Vielsalm.
-Kayak / actie en avontuur
+Er is ook een Blote Voetenpads, het is groter dan in Vlaanderen en avontuurlijk gemaakt. Let wel op: Enkel
+open van mei t.e.m. september. (Vlakbij Ferme de la planche, Rue Montleban 75, 6674 Gouvy).
 
-- Moulin Bock (20 min met de wagen- Rue de La Roche 51, 6660 Houffalize): Kayak/Rafting/MTB/
-  klimmen of speleo: (www.naturaction.com)
-- Val de Wanne: (20 min met de wagen - Aisomont, 70, 4980 Trois-Ponts); veel activteiten; Devilkart,
-  Monsterdownhill, labirinth, puzzelpakket, MTBdownhill, MTBverhuur, boogschieten, dropping, boerengolf
-  etc, (www.levaldewanne.com)
+### (Elektrisch) Fietsen en MTB
+
+Ook de fietsliefhebber kan hier volop zijn hart ophalen. Niet alleen omdat Luik-Bastenaken-Luik hier passeert, ook Col de Wanne ligt op een 15-tal km van het vakantiehuis. Talrijke fiets, MTB of mototochten vind je ook op bovenstaande websites of op Komoot, Routeyou of Wikiloc. De eerder vermelde Ravel L163 is eveneens makkelijk fietsen.
+
+Elektrische fietsen, steps of Mountainbikes zijn ook te huur. Zie website toerisme Vielsalm.
+
+### Kayak / actie en avontuur
+
+- [Moulin Bock](https://www.naturaction.com) (20 min met de wagen- Rue de La Roche 51, 6660 Houffalize): Kayak, Rafting, MTB, klimmen of speleologie
+- [Val de Wanne](https://www.levaldewanne.com) (20 min met de wagen - Aisomont, 70, 4980 Trois-Ponts): veel activiteiten met onder andere Devilkart, Monsterdownhill, labirinth, puzzelpakket, MTBdownhill, MTBverhuur, boogschieten, dropping, boerengolf etc
 - Avenature Kayak; (15 min met de wagen - bêche 40, Vielsalm). Ook MTB verhuur, hoogteparcours
   etc.... (www.avenature.be/nl)
 - Naturaction: Klimmen en speleo (20 min met de wagen - Rue de la Roche 51, Houffalize).
