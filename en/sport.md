@@ -6,7 +6,7 @@ description: sport
 ### Wandelen
 
 Deze regio is bij natuurliefhebbers gekend voor de vele bewegwijzerde wandelroutes. Een aantal van deze wandelroutes kun je volgen vanaf de kerk in Bovigny. Zie ook de wandelkaarten in ons vakantiehuis.
-De website van [de toeristische diensten van Vielsalm/Gouvy](https://www.haute-ardenne.be/nl) of [Houffalize](http://www.houffalize-tourisme.be/) bieden nog heel wat mogelijkheden om te wandelen en ook Routeyou, Komoot of Wikiloc bevatten veel opties in de buurt.
+De website van [de toeristische diensten van Vielsalm/Gouvy](https://www.haute-ardenne.be/nl){:target="\_blank"} of [Houffalize](http://www.houffalize-tourisme.be/) bieden nog heel wat mogelijkheden om te wandelen en ook Routeyou, Komoot of Wikiloc bevatten veel opties in de buurt.
 De Ravel L163 is geasfalteerd en geschikt voor rolstoel en/of kinderwagen. (spoorweg tussen Gouvy en
 Bastogne/30 kilometer).
 De wandeltochten in Nadrin zijn ook heel geliefd bij de toeristen (rotswand Le Hérou)
