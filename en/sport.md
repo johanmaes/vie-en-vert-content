@@ -22,18 +22,16 @@ Elektrische fietsen, steps of Mountainbikes zijn ook te huur. Zie website toeris
 
 ### Kayak / actie en avontuur
 
-- [Moulin Bock](https://www.naturaction.com) (20 min met de wagen- Rue de La Roche 51, 6660 Houffalize): Kayak, Rafting, MTB, klimmen of speleologie
-- [Val de Wanne](https://www.levaldewanne.com) (20 min met de wagen - Aisomont, 70, 4980 Trois-Ponts): veel activiteiten met onder andere Devilkart, Monsterdownhill, labirinth, puzzelpakket, MTBdownhill, MTBverhuur, boogschieten, dropping, boerengolf etc
-- Avenature Kayak; (15 min met de wagen - bêche 40, Vielsalm). Ook MTB verhuur, hoogteparcours
-  etc.... (www.avenature.be/nl)
-- Naturaction: Klimmen en speleo (20 min met de wagen - Rue de la Roche 51, Houffalize).
-  (www.naturaction.com)
-- Paintball & Outdoor Activities (30 min met de wagen, Zum Schwarzenvenn 3A, 4770 Amel).
-  (www.actionzone.be)
-- Eastbelgium action & fun carting center (15min met de wagen, Grüfflingen 39, 4791 Burg Reuland).
-  Karting, Bowling, Cinema-action, Karaoke, Kinderparadise, Lasergame, Rodeo, Fun boxing, 3D minigolf,
-  enz. incl. Restaurant / snackbar. (www.actioncenter.be)
-  Zwemmen en openluchtzwemmen:
+- [Moulin Bock](http://www.naturaction.com) (20 min met de wagen- Rue de La Roche 51, 6660 Houffalize): Kayak, Rafting, MTB, klimmen of speleologie
+- [Val de Wanne](https://www.levaldewanne.com) (20 min met de wagen - Aisomont, 70, 4980 Trois-Ponts): veel activiteiten met onder andere Devilkart, Monsterdownhill, labirinth, puzzelpakket, MTBdownhill, MTBverhuur, boogschieten, dropping, boerengolf etc...
+- [Avenature Kayak](https://www.avenature.be) (15 min met de wagen - bêche 40, Vielsalm). Ook MTB verhuur, hoogteparcours
+  etc...
+- [Naturaction](https://www.naturaction.com) (20 min met de wagen - Rue de la Roche 51, Houffalize): Klimmen en speleologie
+- [Action Zone](www.actionzone.be) Paintball & Outdoor Activities (30 min met de wagen, Zum Schwarzenvenn 3A, 4770 Amel).
+- Eastbelgium action & fun carting center (15min met de wagen, Grüfflingen 39, 4791 Burg Reuland): Karting, Bowling, Cinema-action, Karaoke, Kinderparadise, Lasergame, Rodeo, Fun boxing, 3D minigolf, restaurant/snackbar, etc...
+
+  ### Zwemmen en openluchtzwembaden
+
 - Openluchtzwembad in Troisvierges vernieuwd in 2016 (Luxembourg) - Adres: Rue Milbich, 9905
   Troisvierges (Geopend van half mei tot september) - 20 min. met de wagen.
   Goede voorzieningen, 15m lange glijbaan, bubbelbad, kinderbad, ligweiden en snackbar.
