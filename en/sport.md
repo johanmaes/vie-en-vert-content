@@ -27,7 +27,7 @@ Elektrische fietsen, steps of Mountainbikes zijn ook te huur. Zie website toeris
 - [Avenature Kayak](https://www.avenature.be) (15 min met de wagen - bêche 40, Vielsalm). Ook MTB verhuur, hoogteparcours
   etc...
 - [Naturaction](https://www.naturaction.com) (20 min met de wagen - Rue de la Roche 51, Houffalize): Klimmen en speleologie
-- [Action Zone](www.actionzone.be) Paintball & Outdoor Activities (30 min met de wagen, Zum Schwarzenvenn 3A, 4770 Amel).
+- [Action Zone](https://www.actionzone.be) Paintball & Outdoor Activities (30 min met de wagen, Zum Schwarzenvenn 3A, 4770 Amel).
 - Eastbelgium action & fun carting center (15min met de wagen, Grüfflingen 39, 4791 Burg Reuland): Karting, Bowling, Cinema-action, Karaoke, Kinderparadise, Lasergame, Rodeo, Fun boxing, 3D minigolf, restaurant/snackbar, etc...
 
 ### Zwemmen en openluchtzwembaden
