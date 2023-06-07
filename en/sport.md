@@ -11,8 +11,7 @@ De website van [de toeristische diensten van Vielsalm/Gouvy](https://www.haute-a
 De Ravel L163 is geasfalteerd en geschikt voor rolstoel en/of kinderwagen. (spoorweg tussen Gouvy en
 Bastogne/30 kilometer).
 De wandeltochten in Nadrin zijn ook heel geliefd bij de toeristen (rotswand Le Hérou)
-Er is ook een Blote Voetenpads, het is groter dan in Vlaanderen en avontuurlijk gemaakt. Let wel op: Enkel
-open van mei t.e.m. september. (Vlakbij Ferme de la planche, Rue Montleban 75, 6674 Gouvy).
+Er is ook een Blote Voetenpads, het is groter dan in Vlaanderen en avontuurlijk gemaakt. Let wel op: Enkel open van mei t.e.m. september. (Vlakbij Ferme de la planche, Rue Montleban 75, 6674 Gouvy).
 
 ### (Elektrisch) Fietsen en MTB
 
