@@ -30,4 +30,4 @@ Op een halfuurtje van de vakantiewoning ligt Bastogne waar je tal van monumenten
 
 ### Shopping
 
-Het Groothertogdom Luxemburg ligt op tiental minuutjes rijden. Luxemburgse shopping centra`s en tankstations zijn - omwille van lagere BTW en taksen - interessant voor uw portefeuille (incl. voltanken auto). [Knauf Shopping Schmiede](www.knaufshopping.lu/schmiede) is dagelijks geopend van 10.00 tot 19.00 uur. Sommige winkels zijn vanaf 07.30 uur open.
+Het Groothertogdom Luxemburg ligt op tiental minuutjes rijden. Luxemburgse shopping centra`s en tankstations zijn - omwille van lagere BTW en taksen - interessant voor uw portefeuille (incl. voltanken auto). [Knauf Shopping Schmiede](https://www.knaufshopping.lu/schmiede) is dagelijks geopend van 10.00 tot 19.00 uur. Sommige winkels zijn vanaf 07.30 uur open.
