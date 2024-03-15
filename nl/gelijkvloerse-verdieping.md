@@ -6,7 +6,7 @@ description: Gelijkvloerse verdieping
 ### Gelijkvloerse verdieping
 
 - Ruime woonkamer met eettafel voor 14 personen, flatscreen met Netflix, Disney+ en Google Chromecast, gratis Wifi, gezelschapsspellen,...
-- Gezellige bar met tafelvoetbal
+- Tafelvoetbal
 - Er is een volledig uitgeruste open keuken, met heteluchtoven, inductiekookplaat, microgolfoven, vaatwasser, grote koelkast, koffiezet, mixer, enz...
 - Apart toilet
 - Badkamer met inloopdouche en dubbele wastafel met luierkussen
