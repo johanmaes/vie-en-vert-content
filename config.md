@@ -1,3 +1,3 @@
 ---
-booking: true
+booking: false
 ---
