@@ -46,4 +46,3 @@ Courtil est situé à une altitude élevée (environ 450 mètres), ce qui augmen
 
 - Baraque Fraiture : Située à une altitude de 652 mètres, c'est la plus haute piste de ski de Belgique. Elle dispose de 3 pistes de ski éclairées la nuit (350 m, 700 m et 1000 m) et de 4 pistes de ski de fond ainsi que d'une piste de luge (3, 7, 14 et 21 km). Lieu : près de l'autoroute E25, sortie 50, Baraque de Fraiture.
 - Val de Wanne : Propose des pistes pour le ski alpin, le ski de fond et la luge. Val de Wanne possède la plus longue piste de ski de Belgique, d'une longueur de 1 km. Lieu : Aisomont 70, 4980 Trois-Ponts.
-- Gouvy (ski de fond uniquement) : Offre des pistes de ski de fond de 2, 4, 6 ou 10 km. Les réservations sont recommandées. L'accès aux pistes est gratuit pour ceux qui possèdent leur propre équipement. Lieu : Avenue Noël (en face de la gare de Gouvy, à 100 mètres). Vous pouvez vérifier s'ils sont ouverts ou non sur le site web fourni.

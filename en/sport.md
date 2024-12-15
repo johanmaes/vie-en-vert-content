@@ -53,6 +53,3 @@ ter plaatse gehuurd worden):
 - Baraque Fraiture: Bij 652 meter hoogte, is de skipiste van de hoogste in België. 3 ski-pistes 's nachts verlicht (350m, 700m en 1000m) - 4 sporen van cross country skiën en een
   rodelbaan (3, 7, 14 en 21km) Ligging: vlak aan de snelweg E25, afslag 50, Baraque de Fraiture.
 - Val de Wanne: Pistes voor skiën, langlaufen, sleeën. Met 1km is Val de Wanne de langste skipiste van het land. Ligging: Aisomont 70, 4980 Trois-Ponts
-- [Gouvy](https://www.ardennen-sneeuw.be/skicentrum/pistes-de-ski-de-gouvy) (enkel langlauf): Langlauf pistes van 2, 4, 6 of 10km. Reserveren gewenst. Toegang tot de pistes is gratis voor zij
-  die beschikken over eigen materiaal. Ligging: Avenue Noël (tegenover station Gouvy op 100 meter). Op onderstaande website kan je
-  checken of deze al dan niet geopend zijn.
