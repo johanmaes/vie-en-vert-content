@@ -17,7 +17,7 @@ Er is ook een Blote Voetenpads, het is groter dan in Vlaanderen en avontuurlijk 
 
 Ook de fietsliefhebber kan hier volop zijn hart ophalen. Niet alleen omdat Luik-Bastenaken-Luik hier passeert, ook Col de Wanne ligt op een 15-tal km van het vakantiehuis. Talrijke fiets, MTB of mototochten vind je ook op bovenstaande websites of op Komoot, Routeyou of Wikiloc. De eerder vermelde Ravel L163 is eveneens makkelijk fietsen.
 
-Elektrische fietsen, steps of Mountainbikes zijn ook te huur. Zie website toerisme Vielsalm.
+Elektrische fietsen of mountainbikes zijn ook te huur. Zie website toerisme Vielsalm.
 
 ### Kayak / actie en avontuur
 
@@ -53,3 +53,4 @@ ter plaatse gehuurd worden):
 - Baraque Fraiture: Bij 652 meter hoogte, is de skipiste van de hoogste in België. 3 ski-pistes 's nachts verlicht (350m, 700m en 1000m) - 4 sporen van cross country skiën en een
   rodelbaan (3, 7, 14 en 21km) Ligging: vlak aan de snelweg E25, afslag 50, Baraque de Fraiture.
 - Val de Wanne: Pistes voor skiën, langlaufen, sleeën. Met 1km is Val de Wanne de langste skipiste van het land. Ligging: Aisomont 70, 4980 Trois-Ponts
+

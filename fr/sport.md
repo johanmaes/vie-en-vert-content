@@ -16,7 +16,7 @@ Il y a aussi un Sentier Pieds Nus, plus grand qu'en Flandre et aventureux. Atten
 
 Les amateurs de vélo trouveront ici de nombreuses opportunités pour satisfaire leur passion. Non seulement parce que Liège-Bastogne-Liège passe par ici, mais aussi parce que le Col de Wanne se trouve à seulement 15 km de la maison de vacances. Vous trouverez de nombreuses balades à vélo, VTT ou moto sur les sites web mentionnés ci-dessus, ainsi que sur Komoot, Routeyou ou Wikiloc. La Ravel L163 mentionnée précédemment est également adaptée aux vélos.
 
-Des vélos électriques, des trottinettes électriques ou des VTT sont également disponibles à la location. Consultez le site web de l'office du tourisme de Vielsalm.
+Des vélos électriques ou des VTT sont également disponibles à la location. Consultez le site web de l'office du tourisme de Vielsalm.
 
 ### Kayak / Action et Aventure
 

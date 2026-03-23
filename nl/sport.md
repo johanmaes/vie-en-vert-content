@@ -18,7 +18,7 @@ open van mei t.e.m. september. (Vlakbij Ferme de la planche, Rue Montleban 75, 6
 
 Ook de fietsliefhebber kan hier volop zijn hart ophalen. Niet alleen omdat Luik-Bastenaken-Luik hier passeert, ook Col de Wanne ligt op een 15-tal km van het vakantiehuis. Talrijke fiets, MTB of mototochten vind je ook op bovenstaande websites of op Komoot, Routeyou of Wikiloc. De eerder vermelde Ravel L163 is eveneens makkelijk fietsen.
 
-Elektrische fietsen, steps of Mountainbikes zijn ook te huur. Zie website toerisme Vielsalm.
+Elektrische fietsen of mountainbikes zijn ook te huur. Zie website toerisme Vielsalm.
 
 ### Kayak / actie en avontuur
 
