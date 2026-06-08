@@ -11,5 +11,4 @@ description: Outside area
 - Children's playground with a playhouse and swing, ensuring little ones have a designated space to enjoy themselves
 - Campfire area where you can gather around a cozy fire
 - Herb garden available for guests to use, allowing you to enhance your culinary creations with fresh herbs
-- 2 electric scooters are provided free of charge, offering a convenient and eco-friendly way to explore the surroundings
 - Private parking area, with a charging station for electric cars

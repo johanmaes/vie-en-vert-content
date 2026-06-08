@@ -11,5 +11,4 @@ description: Espace extérieur
 - Aire de jeux pour enfants avec une cabane de jeu et une balançoire, garantissant aux plus petits un espace dédié pour s'amuser
 - Espace de feu de camp où vous pouvez vous rassembler autour d'un feu chaleureux
 - Jardin d'herbes aromatiques à la disposition des clients, vous permettant d'améliorer vos créations culinaires avec des herbes fraîches
-- 2 trottinettes électriques sont fournies gratuitement, offrant un moyen pratique et respectueux de l'environnement pour explorer les environs
 - Zone de stationnement privée avec une borne de recharge
